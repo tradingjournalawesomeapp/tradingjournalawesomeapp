@@ -50,5 +50,5 @@ If you have questions or comments about this policy, you may contact us at:
 
 ---
 
-This privacy policy was last updated on [Date].
+This privacy policy was last updated on 20 June, 2024.
 
